@@ -1,3 +1,3 @@
-# code_by_abhi
-welcome to my repository
-code are rear
+code by abhi 
+its most powefull concept 
+welcome tobe a man
